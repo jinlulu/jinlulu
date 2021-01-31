@@ -20,6 +20,6 @@ Here are some ideas to get you started:
 
 
  
-[![](https://imgur.com/etGxHuz.png)](https://lujin.org/)
+[![](https://imgur.com/etGxHuz.png)](https://jinlulus.com/)
 
 
